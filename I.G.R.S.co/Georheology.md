@@ -192,8 +192,9 @@ Some years ago the famous athlete Lilian Board was reported as suffering from te
 
 This unfortunately was confirmed by the 'untimely' death of this brave woman. In the future the knowledge gained in this case could well be used to prevent many thousands of similar illnesses.
 
-**  
-* * * * * * * * * * * *****_This article was written as far back as April 1986 and published in the Journal of Alternative Medicine._****_What action in the meantime has been taken in the world of health (in its broadest sense) to use the knowledge obtained by a lifetime of study in this unique field?_***** * * * * * * * * * * ***
+**_This article was written as far back as April 1986 and published in the Journal of Alternative Medicine._**
+**_What action in the meantime has been taken in the world of health (in its broadest sense) to use the knowledge obtained by a lifetime of study in this unique field?_**
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE4MDg4MDcyODAsLTM5NDk2OTYyMF19
+eyJoaXN0b3J5IjpbMTQ5NjMyMjA1NCwtMTgwODgwNzI4MCwtMz
+k0OTY5NjIwXX0=
 -->
