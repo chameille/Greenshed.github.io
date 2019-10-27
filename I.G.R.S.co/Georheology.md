@@ -3,8 +3,6 @@
 
 Geo-Rheology is the study of the patterns of cause and effect within the Earth's EMF.
 
-  
-
 Research conducted by Dr.A.M.Davie, of the Newtonian family line, (deceased 2007} from the early 1970's, in collaboration with a Dr.Okubo (assist to Einstein) in the 1980's (lost contact with circa 2000) and myself from 16Nov1991, (currently continuing the research attempting to take it to PhD level), suggests that the Scientists from at least 21,500BCE understood cause and effect within the Earth's EMF and the wider universe to an accuracy of 1000ths of a second in time and distance (space and time)  
 
 - 'Time and Distance can be measured in the same and equal divisions' Aristotle. -
@@ -197,5 +195,5 @@ This unfortunately was confirmed by the 'untimely' death of this brave woman. In
 **  
 * * * * * * * * * * * *****_This article was written as far back as April 1986 and published in the Journal of Alternative Medicine._****_What action in the meantime has been taken in the world of health (in its broadest sense) to use the knowledge obtained by a lifetime of study in this unique field?_***** * * * * * * * * * * ***
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM5NDk2OTYyMF19
+eyJoaXN0b3J5IjpbLTE4MDg4MDcyODAsLTM5NDk2OTYyMF19
 -->
